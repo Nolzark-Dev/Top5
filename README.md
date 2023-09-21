@@ -2,8 +2,8 @@
 ### send money at 
 ### hunterbalderson@gmail.com for top 5
 
-## 1.
-## 2.
-## 3.
-## 4.
-## 5.
+## 1. Nick gates
+## 2. Immanuel lamm
+## 3. Alex Britian Shoosmith
+## 4. Anthony Pollock II
+## 5. Barbara
